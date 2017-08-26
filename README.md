@@ -20,7 +20,9 @@ https://www.twitter.com/GottrauOlivier
 
 My website:
  
-symetric.tv
+gottrau.eu (comming soon)
+
+
 
 
 
